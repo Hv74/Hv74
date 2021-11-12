@@ -1,6 +1,6 @@
 ### Hi there, im hvsx - or [eren_AX/eren.exe]
 
-## I like odng.
+## talk.
 - trynna work on a client.
 - I'm currently learning java.
 - thats it.
