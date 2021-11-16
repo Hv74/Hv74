@@ -7,7 +7,7 @@
 
 ### Connect with me:
 
-haha u wish
+find my discord
 
 ### Projects
 - a client.
